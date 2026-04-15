@@ -10,5 +10,5 @@ Serving Sydney, Brisbane & Melbourne with fast delivery and professional install
 
 ### Why choose us?
 - UL-certified fire protection (30–60 mins)
-- High cash ratings up to $250k
+- High cash ratings up to $1 Million
 - Live order tracking & secure payments
