@@ -6,7 +6,7 @@ Fire-rated • Cash-rated • Torch & drill resistant
 Serving Sydney, Brisbane & Melbourne with fast delivery and professional installation.
 
 **Explore our range:**  
-[Visit Sydney Safes →](<a href="https://sydneysafes.com.au" rel="dofollow">Sydney Safes</a>)
+<a href="https://sydneysafes.com.au" rel="dofollow">Visit Sydney Safes →</a>
 
 ### Why choose us?
 - UL-certified fire protection (30–60 mins)
